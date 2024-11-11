@@ -1,1 +1,1 @@
-undergrad student bioinformatics at the University of Leiden
+Undergrad student Bioinformatics at the University of Leiden
