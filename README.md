@@ -1,1 +1,1 @@
-Hey. I am a high school student.
+undergrad student bioinformatics at the University of Leiden
