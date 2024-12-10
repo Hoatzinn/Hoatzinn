@@ -1,1 +1,1 @@
-Undergrad student Bioinformatics at the University of Leiden
+Undergrad student Bioinformatics and amateur myrmecologist
